@@ -4,4 +4,4 @@ Large/HD images takes some time to get processed!
 
 
 
-<<a href="//imgur.com/85wNszK"></a>
+<a href="//imgur.com/85wNszK"> GIF </a>
